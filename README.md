@@ -4,4 +4,6 @@ estudante do ensino médio ..alura
 
 15 anos
 
-![image](https://github.com/user-attachments/assets/1844fe0c-7145-4b0c-a274-b31b6da5e49c)
+![](https://media.tenor.com/ugj7GP-B7t8AAAAi/poggers-hammer.gif)
+
+![](https://media.tenor.com/g-Tn1zyqSRwAAAAj/nerd-meme.gif)
